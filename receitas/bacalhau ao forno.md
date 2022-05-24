@@ -1,4 +1,4 @@
-# Strogonoff de Frango :chicken:
+# Bacalhau ao Forno 🐟
 
 **_INGREDIENTES_**
 
